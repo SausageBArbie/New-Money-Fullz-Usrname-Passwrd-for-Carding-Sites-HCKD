@@ -3,6 +3,8 @@
 
 Email:Nashjoy.proton.me
 
+BItcoin Wallet - bc1q3wn6ulmr6ttk8q5677372spzda70u260g8u69h send email with request, once i get the BTC I will then  process and send intstyrustions 
+
 CASH APP TRANSFER
 
 $200- $2000
